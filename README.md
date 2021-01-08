@@ -1,1 +1,0 @@
-# staticwebsiteforwinternship.github.io
